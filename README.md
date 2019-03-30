@@ -1,2 +1,1 @@
-# hello-world
-to live is to suffer
+life is subjective to the power of your ambition
